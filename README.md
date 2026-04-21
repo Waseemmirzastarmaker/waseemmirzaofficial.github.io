@@ -23,3 +23,5 @@ vlog channel wm
 www.youtube.com/@vlogchannelwm
 Amazing vdieos 
 www.youtube.com/@amazingvideos_wm
+Islam for all 
+www.youtube.com/@Islamforall_wm
